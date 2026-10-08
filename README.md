@@ -224,4 +224,4 @@ Need for Speed ProStreet is provided as a complete free version, allowing player
 Ready to unleash your inner street racer? Download Need for Speed ProStreet now and start your journey!
 
 ---
-**Last updated:** 2026-10-07 21:08:55 UTC
+**Last updated:** 2026-10-08 01:29:18 UTC
